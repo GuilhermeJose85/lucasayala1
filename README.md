@@ -1,7 +1,4 @@
-# projeto inicial
-
-
-**lucasayala1/lucasayala1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# sobre ayala✨
 
 Here are some ideas to get you started:
 
