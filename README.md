@@ -2,7 +2,7 @@
 
 Here are some ideas to get you started:
 
-- Atualmente estou trabalhando em senac 
+- Atualmente estou estudando em senac recife 
 - Atualmente estou aprendendo ads 
 - Como entrar em contato comigo:ayalalucas201@gmail.com
 - Pronomes: ele/dele
